@@ -54,6 +54,4 @@ As one of the *Chiranjivis*, Mahabali continues to rule in Patala, but his heart
 
 And so, Mahabali, the benevolent king of the Asuras, lives on—an immortal ruler, blessed by Vishnu, and revered by his people. His tale is one of devotion, sacrifice, and the enduring power of dharma, a story that continues to inspire and uplift those who seek the path of righteousness.
 
----
-
 This is the story of Mahabali, the eternal king, whose life and legacy remind us of the timeless values of humility, generosity, and devotion to duty. His tale is celebrated each year with joy and reverence, keeping alive the memory of a king who truly cared for his people and earned a place in the hearts of gods and men alike.
