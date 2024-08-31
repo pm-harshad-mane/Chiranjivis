@@ -1,5 +1,5 @@
 
-### **The Tale of Ashwatthama: The Cursed Immortal**
+### **Ashwatthama: The Cursed Warrior**
 
 In the grand kingdom of Hastinapura, during the age of the Mahabharata, there lived a great warrior named Ashwatthama, the son of Dronacharya, the revered teacher of the Kauravas and Pandavas. Ashwatthama was born with a divine jewel embedded in his forehead, a gift from the gods that granted him protection from hunger, thirst, and fatigue. He was destined for greatness, trained in the art of warfare by his father, and equipped with knowledge of powerful celestial weapons.
 
