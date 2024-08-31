@@ -1,4 +1,4 @@
-### **Hanuman: Devoted of Rama**
+### **Hanuman: Devotee of Rama**
 
 In the ancient forests of India, where the divine and the mortal realms often intertwined, there lived a being of immense strength, wisdom, and devotion. His name was Hanuman, the monkey god, whose story of unwavering loyalty and selfless service to Lord Rama has been told and retold for millennia. This is the tale of Hanuman, the eternal servant of Dharma, whose life exemplifies the highest ideals of devotion, courage, and humility.
 
