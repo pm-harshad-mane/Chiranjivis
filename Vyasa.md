@@ -62,6 +62,4 @@ To this day, Vyasa is honored as one of the greatest sages in Hindu tradition. T
 
 And so, the story of Vyasa, the sage who shaped the ages, continues to inspire and guide countless souls on their journey toward spiritual enlightenment. His teachings, preserved in the Mahabharata, the Vedas, and the Puranas, remain as relevant today as they were thousands of years ago, offering timeless wisdom to those who seek the path of dharma.
 
----
-
 This is the tale of Vyasa, the eternal sage, whose life and works have left an indelible mark on the spiritual and cultural heritage of the world. His story is one of divine wisdom, selfless service, and the pursuit of knowledge, a legacy that will endure as long as time itself.
