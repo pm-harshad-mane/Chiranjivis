@@ -11,3 +11,5 @@ In Hindu tradition, the *Chiranjivis* are beings who are blessed with immortalit
 - **Parashurama**: The sixth avatar of Vishnu, Parashurama is a warrior sage who wielded an axe and is known for destroying the Kshatriya class 21 times. He is immortal and is believed to be living in penance, waiting for the arrival of the next Vishnu avatar, Kalki.
 
 These seven *Chiranjivis* are believed to play significant roles in preserving righteousness and are revered across various texts and traditions within Hinduism.
+
+The PDF copy of the document is here: [Chiranjivis](Chiranjivis.pdf) 
