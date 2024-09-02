@@ -1,6 +1,6 @@
 # Chiranjivis
 
-The PDF copy of the document is here: [Chiranjivis](Chiranjivis.pdf) 
+The PDF copy of the whole book is here: [Chiranjivis](Chiranjivis.pdf) 
 
 In Hindu tradition, the *Chiranjivis* are beings who are blessed with immortality or an exceptionally long life, destined to live until the end of the current Kali Yuga. The seven *Chiranjivis* are:
 
@@ -14,4 +14,4 @@ In Hindu tradition, the *Chiranjivis* are beings who are blessed with immortalit
 
 These seven *Chiranjivis* are believed to play significant roles in preserving righteousness and are revered across various texts and traditions within Hinduism.
 
-The PDF copy of the document is here: [Chiranjivis](Chiranjivis.pdf) 
+The PDF copy of the whole book is here: [Chiranjivis](Chiranjivis.pdf) 
