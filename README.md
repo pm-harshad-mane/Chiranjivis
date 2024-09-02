@@ -1,5 +1,7 @@
 # Chiranjivis
 
+The PDF copy of the document is here: [Chiranjivis](Chiranjivis.pdf) 
+
 In Hindu tradition, the *Chiranjivis* are beings who are blessed with immortality or an exceptionally long life, destined to live until the end of the current Kali Yuga. The seven *Chiranjivis* are:
 
 - **Vyasa**: Also known as Vedavyasa, he is the sage who compiled the Vedas and wrote the Mahabharata. Vyasa is considered immortal, living to spread knowledge and wisdom through the ages.
